@@ -1,5 +1,4 @@
-# 🏁 Vegam Cheyy!!
-
+hi
 Many will enter.
 
 Few will be first.
